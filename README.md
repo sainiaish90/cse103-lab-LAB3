@@ -25,5 +25,5 @@
 
 ## Connect With Me
 
-- LinkedIn : https://www.linkedin.com/in/aish-saini-176471432?utm_source=share_via&utm_content=profile&utm_medium=member_android
+- LinkedIn : https://www.linkedin.com/in/aish-saini-176471432
 - Email : 2601201005@krmu.edu.in
